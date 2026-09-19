@@ -12,7 +12,7 @@ $\texttt{\color{#FD96BB} ㅤᰔᩚ . 𝐶ℎ𝑒𝑟𝑟𝑒𝑦/𝐺𝑎𝑟�
 $\texttt{\color{#F5F5F5} .ㅤㅤㅤㅤ꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚ }$
 $\texttt{\color{#B2AC6D} ㅤㅤঞ𝑅𝑜𝑑𝑔𝑒𝑟. 𝑦𝑢𝑚𝑒𝑠ℎ𝑖𝑝𝑝𝑒𝑟 ᰔᩚ 𝑑𝑜𝑢𝑏𝑙𝑒𝑠 𝑑𝑛𝑖 }$
 
- [𝑎𝑡𝑎𝑏𝑜𝑜𝑘](https://gardevoir.atabook.org/) ૮(˶ᵔᵕᵔ˶)ა   [𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://gardevoirtheembracepokemon.straw.page/)
+ㅤㅤㅤㅤ [𝑎𝑡𝑎𝑏𝑜𝑜𝑘](https://gardevoir.atabook.org/) ૮(˶ᵔᵕᵔ˶)ა   [𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://gardevoirtheembracepokemon.straw.page/)
  
  <img width="99" height="56" alt="1000024436" src="https://github.com/user-attachments/assets/6a358d23-de38-40f0-b1c7-2bde87ec8597" />
 <img width="99" height="56" alt="1000024437" src="https://github.com/user-attachments/assets/750457f2-507d-4415-8a5a-4e285371a502" />
