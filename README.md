@@ -3,8 +3,8 @@ still a wip
 $\texttt{\color{#F5F5F5} .ㅤㅤㅤㅤㅤㅤ꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚ }$
 <img width="1536" height="855" alt="1000024451" src="https://github.com/user-attachments/assets/575e9646-3ff6-440b-b9d3-4839b5ce81dd" />
 
- $\texttt{\color{#7C6F8A} ʚ.°  "𝗍һᥱ ᥙᥒі᥎ᥱrsᥱ mᥲᥡ 𝖿ᥲ𝑖𝑛𝑡𝑜 𝒅𝒂𝒓𝒌𝒏𝒆𝒔𝒔, 𝑏𝑢𝑡 𝑦𝑜𝑢 ɞ }$ 
- $\texttt{\color{#7C6F8A} ㅤㅤㅤㅤ𝑤𝑖𝑙𝑙 𝑟𝑒𝑚𝑎𝑖𝑛 𝒖𝒏𝒉𝒂𝒓𝒎𝒆𝒅." ٭ ɞ}$
+ $\texttt{\color{#7C6F8A} ʚ.°  "𝗍һᥱ ᥙᥒі᥎ᥱrsᥱ mᥲᥡ 𝖿ᥲ𝚕𝚕 іᥒ𝗍᥆ 𝒅𝒂𝒓𝒌𝒏𝒆𝒔𝒔, ᑲ𝑢𝑡 ᥡ𝑜𝑢 ɞ }$ 
+ $\texttt{\color{#7C6F8A} ㅤㅤㅤㅤᥕ𝑖𝑙𝑙 rᥱmᥲіᥒ 𝒖𝒏𝒉𝒂𝒓𝒎𝒆𝒅." ٭ ɞ}$
 
 ㅤㅤㅤㅤㅤㅤㅤ٭![](https://komarev.com/ghpvc/?username=BloodKissed&color=green&label=visitors) ٭
 
