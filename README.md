@@ -16,6 +16,8 @@ $\texttt{\color{#B2AC6D} ㅤㅤঞ𝑅𝑜𝑑𝑔𝑒𝑟. 𝑦𝑢𝑚𝑒𝑠
  
  <img width="99" height="56" alt="1000024436" src="https://github.com/user-attachments/assets/6a358d23-de38-40f0-b1c7-2bde87ec8597" />
 <img width="99" height="56" alt="1000024437" src="https://github.com/user-attachments/assets/750457f2-507d-4415-8a5a-4e285371a502" />
-<img width="99" height="56" alt="1000024438" src="https://github.com/user-attachments/assets/48757a70-b3fe-412f-9056-78681b4a7613" />
+<img width="99" height="56" alt="1000024438" src="https://github.com/user-attachments/assets/48757a70-b3fe-412f-9056-78681b4a7613" /> <img width="99" height="56" alt="1000024533" src="https://github.com/user-attachments/assets/1dc39016-2aa1-4275-bb1e-8c72c440962e" />
+<img width="99" height="55" alt="1000024532" src="https://github.com/user-attachments/assets/fe1b9caf-d00d-4b6b-b4e0-20dcfea8431e" />
+
 
  
