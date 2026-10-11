@@ -7,7 +7,8 @@ $\texttt{\color{#F5F5F5} .ㅤㅤㅤㅤㅤㅤ꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥�
  $\texttt{\color{#7C6F8A} ʚ.°  "𝗍һᥱ ᥙᥒі᥎ᥱrsᥱ mᥲᥡ 𝖿ᥲ𝚕𝚕 іᥒ𝗍᥆ 𝒅𝒂𝒓𝒌𝒏𝒆𝒔𝒔, ᑲ𝑢𝑡 ᥡ𝑜𝑢 ɞ }$ 
  $\texttt{\color{#7C6F8A} ㅤㅤㅤㅤᥕ𝑖𝑙𝑙 rᥱmᥲіᥒ 𝒖𝒏𝒉𝒂𝒓𝒎𝒆𝒅." ٭ ɞ}$
 
-ㅤㅤㅤㅤㅤㅤㅤ٭![](https://komarev.com/ghpvc/?username=BloodKissed&color=green&label=visitors) ٭
+ㅤㅤㅤㅤㅤㅤㅤ <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FBloodKissed&label=petals&labelColor=%FD96BB&countColor=%23d9e3f0&style=plastic&labelStyle=none" alt="Visitors" />
+</p>
 
 $\texttt{\color{#FD96BB} ⟢ㅤ . ᥴһᥱ𝑟𝑟𝑒𝑦/gᥲrძe᥎᥆𝑖𝑟/sіr𝑛𝑖𝑔ℎ𝑡٭ }$.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡
@@ -26,6 +27,9 @@ $\texttt{\color{#7C6F8A}ㅤ⟢  ㅤ.іm ᥒ᥆𝗍 ᥲ p̶r̶o̶s̶h̶i̶p̶ .  
 
 
 
+
+<img width="1078" height="165" alt="1000025157" src="https://github.com/user-attachments/assets/db43989a-bf24-4506-b258-ac16c26b15a3" />
+<img width="1079" height="160" alt="1000025135" src="https://github.com/user-attachments/assets/5fa4d6da-0ced-43c6-b4e1-6f6aa7e120a7" />
 
 
  
