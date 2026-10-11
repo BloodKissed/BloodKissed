@@ -18,12 +18,11 @@ $\texttt{\color{#B2AC6D} ㅤㅤᜊr᥆ძ𝑔𝑒𝑟. ᥡᥙmᥱsһі⍴⍴𝑒
 $\texttt{\color{#7C6F8A}ㅤ⟢  ㅤ.іm ᥒ᥆𝗍 ᥲ p̶r̶o̶s̶h̶i̶p̶ .   і ძ᥆ᥒ𝗍 sᥙ⍴⍴᥆rt !}$
 
 .
-ㅤㅤㅤㅤ [𝑎𝑡𝑎𝑏𝑜𝑜𝑘](https://gardevoir.atabook.org/) ♡   [𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://gardevoirtheembracepokemon.straw.page/)
+ㅤㅤ [𝑎𝑡𝑎𝑏𝑜𝑜𝑘](https://gardevoir.atabook.org/) ♡   [𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒](https://gardevoirtheembracepokemon.straw.page/) ♡ [𝑝𝑟𝑜𝑛𝑜𝑢𝑛𝑠.𝑐𝑐](https://prns.cc/nvxxe) 
  
  <img width="99" height="56" alt="1000024436" src="https://github.com/user-attachments/assets/6a358d23-de38-40f0-b1c7-2bde87ec8597" />
 <img width="99" height="56" alt="1000024437" src="https://github.com/user-attachments/assets/750457f2-507d-4415-8a5a-4e285371a502" />
-<img width="99" height="56" alt="1000024438" src="https://github.com/user-attachments/assets/48757a70-b3fe-412f-9056-78681b4a7613" /> <img width="99" height="56" alt="1000025136" src="https://github.com/user-attachments/assets/b300339b-5639-42ca-bb20-43abb7e6a196" />
-<img width="99" height="56" alt="1000025139" src="https://github.com/user-attachments/assets/314b9e47-7480-4d30-bce1-6d3cd1762cac" />
+<img width="99" height="56" alt="1000024438" src="https://github.com/user-attachments/assets/48757a70-b3fe-412f-9056-78681b4a7613" /> <img width="99" height="56" alt="1000025136" src="https://github.com/user-attachments/assets/b300339b-5639-42ca-bb20-43abb7e6a196" /> <img width="99" height="56" alt="1000025139" src="https://github.com/user-attachments/assets/314b9e47-7480-4d30-bce1-6d3cd1762cac" />
 
 
 
