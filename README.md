@@ -7,6 +7,7 @@ $\texttt{\color{#F5F5F5} .ㅤㅤㅤㅤㅤㅤ꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥�
  $\texttt{\color{#7C6F8A} ʚ.°  "𝗍һᥱ ᥙᥒі᥎ᥱrsᥱ mᥲᥡ 𝖿ᥲ𝚕𝚕 іᥒ𝗍᥆ 𝒅𝒂𝒓𝒌𝒏𝒆𝒔𝒔, ᑲ𝑢𝑡 ᥡ𝑜𝑢 ɞ }$ 
  $\texttt{\color{#7C6F8A} ㅤㅤㅤㅤᥕ𝑖𝑙𝑙 rᥱmᥲіᥒ 𝒖𝒏𝒉𝒂𝒓𝒎𝒆𝒅." ٭ ɞ}$
 
+
 ㅤㅤㅤㅤㅤㅤㅤ <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FBloodKissed&label=petals&labelColor=%FD96BB&countColor=%23d9e3f0&style=plastic&labelStyle=none" alt="Visitors" />
 </p>
 
