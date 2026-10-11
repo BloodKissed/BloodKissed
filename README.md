@@ -8,8 +8,31 @@ $\texttt{\color{#F5F5F5} .ㅤㅤㅤㅤㅤㅤ꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥�
  $\texttt{\color{#7C6F8A} ㅤㅤㅤㅤᥕ𝑖𝑙𝑙 rᥱmᥲіᥒ 𝒖𝒏𝒉𝒂𝒓𝒎𝒆𝒅." ٭ ɞ}$
 
 
-ㅤㅤㅤㅤㅤㅤㅤ <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FBloodKissed&label=petals&labelColor=%FD96BB&countColor=%23d9e3f0&style=plastic&labelStyle=none" alt="Visitors" />
-</p>
+ㅤㅤㅤㅤㅤㅤㅤ <div align="center">
+      
+
+![Github Views](https://views.igorkowalczyk.dev/api/badge/BloodKissed?label=petals&labelColor=ffffff&color=FD96BB)
+
+<div align="center">
+  <details>
+    <summary><b>𝘚𝘵𝘶𝘧𝘧 🪷</b></summary>
+    <br>
+    <p> 𝘤+𝘩 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦𝘥!</p>
+    <p>𝘥𝘰 𝘯𝘰𝘵 𝘪𝘯𝘷𝘰𝘭𝘷𝘦 𝘮𝘦 𝘪𝘯𝘵𝘰 𝘢𝘳𝘨𝘶𝘮𝘦𝘯𝘵𝘴-𝘐 𝘨𝘦𝘵 𝘱𝘪𝘴𝘴𝘦𝘥 𝘰𝘧𝘧 𝘦𝘢𝘴𝘪𝘭𝘺, 𝘥𝘰 𝘯𝘰𝘵 𝘵𝘦𝘮𝘱𝘦𝘳 𝘮𝘦. </p>
+    <p>𝘮𝘰𝘴𝘵𝘭𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘧𝘳𝘪𝘦𝘯𝘥𝘴, 𝘢𝘭𝘸𝘢𝘺𝘴 𝘰𝘯 𝘸2𝘪!!!</p>
+    <p>𝘪𝘮 𝘴𝘦𝘯𝘴𝘪𝘵𝘪𝘷𝘦,𝘪𝘧 𝘺𝘰𝘶'𝘳𝘦 𝘢 𝘳𝘢𝘨𝘦𝘣𝘢𝘪𝘵𝘦𝘳, 𝘐 𝘸𝘪𝘭𝘭 𝘣𝘭𝘰𝘤𝘬 𝘺𝘰𝘶. </p>
+    <p>𝘪 𝘩𝘢𝘷𝘦 𝘢 𝘤𝘰𝘷𝘦𝘳 𝘥𝘪𝘴𝘤𝘰𝘮𝘧𝘰𝘳𝘵,𝘪𝘧 𝘪𝘵'𝘴 𝘰𝘯 𝘱𝘶𝘳𝘱𝘰𝘴𝘦, 𝘺𝘰𝘶𝘭𝘭 𝘨𝘦𝘵 𝘣𝘭𝘰𝘤𝘬𝘦𝘥. 𝘐 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺. </p>
+    <p>𝘣𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥, 𝘐'𝘮 𝘬𝘪𝘯𝘥 𝘢𝘯𝘥 𝘤𝘰𝘰𝘭 </p>
+  <p>𝘮𝘰𝘳𝘦 𝘪𝘯𝘧𝘰 𝘰𝘯 𝘮𝘺 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘱𝘢𝘨𝘦 </a>🪽</p>
+
+  </details>
+</div>
+
+
+
+
+
+</details>
 
 $\texttt{\color{#FD96BB} ⟢ㅤ . ᥴһᥱ𝑟𝑟𝑒𝑦/gᥲrძe᥎᥆𝑖𝑟/sіr𝑛𝑖𝑔ℎ𝑡٭ }$.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♡
