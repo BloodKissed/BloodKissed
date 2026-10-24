@@ -55,6 +55,8 @@ $\texttt{\color{#7C6F8A}ㅤ⟢  ㅤ.іm ᥒ᥆𝗍 ᥲ p̶r̶o̶s̶h̶i̶p̶ .  
 <img width="1078" height="165" alt="1000025157" src="https://github.com/user-attachments/assets/db43989a-bf24-4506-b258-ac16c26b15a3" />
 <img width="1079" height="160" alt="1000025135" src="https://github.com/user-attachments/assets/5fa4d6da-0ced-43c6-b4e1-6f6aa7e120a7" />
 <img width="713" height="106" alt="1000025252" src="https://github.com/user-attachments/assets/3daa35fb-1cf4-410c-b69e-098d8da4e077" />
+<img width="793" height="128" alt="1000025494" src="https://github.com/user-attachments/assets/ee229dfb-30fd-42f9-b1d7-35718bbdd6e8" />
+
 
 
  
