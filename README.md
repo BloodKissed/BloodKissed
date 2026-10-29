@@ -1,7 +1,7 @@
-ㅤㅤㅤㅤ$\texttt{\color{#FD96BB} 𝑴𝒂𝒏𝒆𝒂𝒕𝒆𝒓 - 𝑵𝒆𝒍𝒍𝒚 𝑭𝒖𝒓𝒕𝒂𝒅𝒐}$.
+ㅤㅤㅤㅤㅤ𝑴𝒂𝒏𝒆𝒂𝒕𝒆𝒓 - 𝑵𝒆𝒍𝒍𝒚 𝑭𝒖𝒓𝒕𝒂𝒅𝒐
 <img width="1536" height="1107" alt="1000025602" src="https://github.com/user-attachments/assets/1df179e9-77c3-4bf7-bf17-f7f76036a8c8" />
 
-ㅤㅤㅤㅤㅤᴄʀ- @zeratin ᴏɴ ᴛᴛ
+ㅤㅤㅤㅤㅤ𝒄𝒓𝒆𝒅𝒊𝒕 - @zeratin 𝒐𝒏 𝑻𝑻
              ㅤㅤㅤㅤㅤㅤ <div align="center">
      
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/BloodKissed?label=petals&labelColor=ffffff&color=FBCEDC)
